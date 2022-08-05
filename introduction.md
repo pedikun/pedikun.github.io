@@ -8,4 +8,4 @@ how about all my contact link this time
 
 
 [twitter](https://twitter.com/ped1kun)
-[youtube](youtube.com/channel/UCI1rfwEDn5ykfczmWVlox0w)
+[youtube](https://youtube.com/channel/UCI1rfwEDn5ykfczmWVlox0w)
