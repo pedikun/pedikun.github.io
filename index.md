@@ -6,7 +6,14 @@ hello i am just a new programmer that wathing tutToriel on youtube
 
 ### here all my contact if you want
 
-[youtube](https://www.youtube.com/channel/UCI1rfwEDn5ykfczmWVlox0w)
+[youtube](https://www.youtube.com/channel/UCI1rfwEDn5ykfczmWVlox0w)           
 
 [twitter](https://twitter.com/ped1kun)
+
+[discord](https://discord.gg/QjJXD2qRRz)
+
+[instagram](https://www.instagram.com/pedi.id/)
+
+[github](https://github.com/pedikun)
+
 
