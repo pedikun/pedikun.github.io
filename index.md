@@ -1,6 +1,6 @@
 ## Welcome to pediwebTM
 
-hello there yes i have made a website that my friend ask from [discord](https//discord.gg/QjJXD2qRRz)
+hello there yes i have made a website that my friend ask from [discord](https://discord.gg/QjJXD2qRRz)
 
 hello i am just a new programmer that wathing tutToriel on youtube 
 
