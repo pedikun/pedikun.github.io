@@ -16,4 +16,8 @@ hello i am just a new programmer that wathing tutToriel on youtube
 
 [github](https://github.com/pedikun)
 
+[tiktok](https://www.tiktok.com/@ped1kun)
+
+[very gud vidio](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
 
