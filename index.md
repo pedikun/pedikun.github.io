@@ -20,4 +20,10 @@ hello i am just a new programmer that wathing tuToriel on youtube
 
 [very gud vidio](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
+well if i dont annoyed you for getting this well you migh want to see this 
+
+i am just pedi 
+im from indonesia and very gud at english 
+probably just that weird guy and i take it as a compliment
+
 
