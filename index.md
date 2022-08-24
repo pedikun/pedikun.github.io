@@ -27,5 +27,3 @@ well if i dont annoyed you for getting this well you migh want to see this
 i am just pedi 
 im from indonesia and very gud at english 
 probably just that weird guy and i take it as a compliment
-
-[test](http://pedikun.github.io/id)
