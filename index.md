@@ -26,4 +26,4 @@ i am just pedi
 im from indonesia and very gud at english 
 probably just that weird guy and i take it as a compliment
 
-
+[test](http://pedikun.github.io/id)
