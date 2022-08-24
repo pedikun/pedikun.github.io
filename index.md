@@ -1,5 +1,5 @@
 ## Welcome to pediwebTM
-[indonesia](https://pedikun/github.io/id/)<translate
+[indonesia](https://pedikun/github.io/id)<translate
                                                      
 hello there yes i have made a website that my friend ask from [discord](https://discord.gg/QjJXD2qRRz)
 
