@@ -1,4 +1,5 @@
 ## welcome to pediwebTM
+[english](https://pedikun.github.io)<translate
 
 hallu ini aku pedi yep baru ditrasnlate web nya
 pedi freelance hacker/programmer baru
