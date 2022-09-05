@@ -12,7 +12,7 @@ hello i am just a new programmer that wathing tuToriel on youtube
 
 [twitter](https://twitter.com/ped1kun)
 
-[discord](https://discord.gg/QjJXD2qRRz)
+[discord](https://discord.com/users/83126442616684554)
 
 [instagram](https://www.instagram.com/pedi.id/)
 
