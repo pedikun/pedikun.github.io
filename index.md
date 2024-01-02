@@ -4,7 +4,7 @@
                                                      
 hello there yes i have made a website that my friend ask from [discord](https://discord.gg/QjJXD2qRRz)
 
-hello i am just a new programmer that wathing tuToriel on youtube 
+hello i am just a new programmer that wathing tutorial on youtube 
 
 ### here all my contact if you want
 
@@ -13,6 +13,7 @@ hello i am just a new programmer that wathing tuToriel on youtube
 [twitter](https://twitter.com/ped1kun)
 
 [discord](https://discord.com/users/83126442616684554)
+or find the username pedikun
 
 [instagram](https://www.instagram.com/pedi.id/)
 
